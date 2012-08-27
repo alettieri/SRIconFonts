@@ -1,1 +1,1 @@
-Webfont Icons by: [http://srainwater.com](Sarah Rainwater)
+Webfont Icons by: [Sarah Rainwater](http://srainwater.com "View Sarah Rainwater's work")
